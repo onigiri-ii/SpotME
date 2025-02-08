@@ -1,4 +1,4 @@
-# SpotME2
+# SpotME
 
 hi guys this is deepti lmk if u see this
 yeah : sia
